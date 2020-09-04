@@ -1,6 +1,6 @@
-# [Messi interview with Goal](https://www.goal.com/es/noticias/lionel-messi-en-goal-jamas-iria-a-juicio-contra-el-club-de/f1rk5x1dmnmm1cay5rgxz71ie)
+# [Messi interview with Goal (Translation) ](https://www.goal.com/es/noticias/lionel-messi-en-goal-jamas-iria-a-juicio-contra-el-club-de/f1rk5x1dmnmm1cay5rgxz71ie)
 
-## [Translation](https://www.reddit.com/r/soccer/comments/iminf8/messi_interview_with_goal/g402lfo/):
+[Translation source](https://www.reddit.com/r/soccer/comments/iminf8/messi_interview_with_goal/g402lfo/)
 
 **Why did it take you time to break your silence and go out to speak?**
 
